@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ishuyadavyadav9988
-- 👀 I’m interested in working on computer.
+- 👀 I’m interested in working with IT AND SOFWARES.
 - 🌱 I’m currently learning c++, and many more skills to improve my journey to be a good coder.
 - 📫 reach me by my mail id.
 
